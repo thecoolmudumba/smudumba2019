@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Sai Mudumba (@smudumba2019). I also go by my middle name, Madhav!
+- 👋 Hi, I’m Sai Mudumba (@smudumba2019). I also go by Madhav!
 - 👀 I’m interested in Aerospace Engineering, with a passion for Space Exploration or designing Airplanes
 - 🌱 I’m currently pursuing two Master of Science degrees: Aerospace Engineering & Electrical and Computer Engineering
 
