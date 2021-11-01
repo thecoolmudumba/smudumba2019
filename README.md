@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Sai Mudumba (@smudumba2019). I also go by Madhav!
-- 👀 I’m interested in Aerospace Engineering, with a passion for Space Exploration or designing Airplanes
+- 👀 I’m interested in Aerospace Engineering and Mechanical Engineering, with a passion for Space Exploration, designing Airplanes, and Electric Autonomous Technologies
 - 🌱 I’m currently pursuing two Master of Science degrees: Aerospace Engineering & Electrical and Computer Engineering
 
 
