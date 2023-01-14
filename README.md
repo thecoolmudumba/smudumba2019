@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Sai Mudumba (@smudumba2019). I also go by Madhav!
+- 👋 Hi, I’m Sai Mudumba (@smudumba2019).
 - 👀 I’m interested in exploring novel problems in Aerospace Engineering, with a passion for Space Exploration and Airplane design
 - 🌱 I graduated from Purdue University with BS in Aerospace Engineering; two MS degrees in Aerospace Engineering & Electrical and Computer Engineering
 
